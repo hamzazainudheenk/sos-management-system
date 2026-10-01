@@ -186,7 +186,7 @@ Ideas and improvements are welcome!
 ## 📬 Contact
 
 **School of Skills** — Calicut, Kerala, India
-🌐 [schoolofskills.com](https://schoolofskills.com) • ✉️ info@schoolofskills.com
+🌐 [soslearnings.com](https://www.soslearnings.com/) 
 
 ---
 
